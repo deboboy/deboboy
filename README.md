@@ -4,7 +4,7 @@ Expanding the innovator pool helping people, teams, and communities realize thei
 
 ## Currently
 
-🚀 CTO @ **Carina**  
-🧬 Co‑Founder @ **Adios COVID**  
+🚀 Chief Security Officer @ **Carina**  
+🧬 Co‑Founder @ **Mi Salud**  
 📦 Managing Partner @ **Last Myle**  
 🔬 R&D @ **University of Washington Information School**
